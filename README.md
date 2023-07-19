@@ -9,4 +9,7 @@
 
 ## Новая глава
 
+
 *Это я*
+![new_ avatar](https://github.com/Ksykot/mom/assets/139037517/914377b8-07b0-4cc4-b805-70d569d65624)
+
